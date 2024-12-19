@@ -1,4 +1,4 @@
-## Plateforme de site de meubles
+## Plateforme de site de meubles 🪑🪑🪑
 
 Projet collectif n°5 - Ada Tech School - 2 semaines
 
